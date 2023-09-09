@@ -6,7 +6,7 @@ Exemple:
 ### [Bulle](https://www.onf.ca/interactif/bulle/) 
 L'oeuvre *Bulle* m'interpelle beaucoup puisque c'est une oeuvre interactive qui porte un message fort. En effet, elle tente de nous sensibiliser aux enjeux climatiques. Prendre position et défendre des valeurs par l'art est l'un des aspects du multimédia qui m'intéresse beaucoup. 
 
-### [Jojo's Bizarre Adeventure]([https://www.onf.ca/interactif/agence_fr/](https://www.google.ca/search?sa=X&sca_esv=564039451&sxsrf=AB5stBjvxO00Lv1ZHNpbebf5RjYM0kXs4Q:1694293868133&q=Jojo%27s+Bizarre+Adventure&si=ACFMAn-Lh5JlZnDwyykxLtFcEQeM9EJ2lQxUBTahikXk6n5P2LGny_YK-tudvu30TFjgua8MwTqDoxuMdGs53ujA7Yr_8nx7wE8v9_qbt75t_OCN2AeuE9V9kSdTb2g3gI_XEltboDWvTkdjdQkmnmnuy7VH8U_-cqeGz4B4jS86NIwdbcBrSnwauGQ_YPdqyLOSSLUD9tvy&ved=2ahUKEwiazZ7BuJ6BAxUGkIkEHR8rD_gQ3LoBegQIBxAB&biw=1482&bih=746&dpr=1.25))
+### [Jojo's Bizarre Adeventure](https://www.onf.ca/interactif/agence_fr/](https://www.google.ca/search?sa=X&sca_esv=564039451&sxsrf=AB5stBjvxO00Lv1ZHNpbebf5RjYM0kXs4Q:1694293868133&q=Jojo%27s+Bizarre+Adventure&si=ACFMAn-Lh5JlZnDwyykxLtFcEQeM9EJ2lQxUBTahikXk6n5P2LGny_YK-tudvu30TFjgua8MwTqDoxuMdGs53ujA7Yr_8nx7wE8v9_qbt75t_OCN2AeuE9V9kSdTb2g3gI_XEltboDWvTkdjdQkmnmnuy7VH8U_-cqeGz4B4jS86NIwdbcBrSnwauGQ_YPdqyLOSSLUD9tvy&ved=2ahUKEwiazZ7BuJ6BAxUGkIkEHR8rD_gQ3LoBegQIBxAB&biw=1482&bih=746&dpr=1.25)
 Cet oeuvre multimédia est un anime que j'ai commencé lorsque j'étais en secondaire 4. Je suis très attaché a *Jojo's Bizarre Adventure* car le style d'art et  le plot font que cet anime soit bon. De plus, il y a plusieurs saison, donc tu ne vas pas t'ennuyer.
 
 ### [À l'est des rocheuses](https://www.onf.ca/interactif/a_lest_des_rocheuses) 
