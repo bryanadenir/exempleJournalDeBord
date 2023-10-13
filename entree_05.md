@@ -2,7 +2,7 @@
 ## Rétrospective de l'examen (1 à 2 lignes par question)
 
 ### Points forts de la préparation à l'examen
-J'avais une bonne mémoire, donc j'ai pu mémoriser assez d'information.
+J'avais une bonne mémoire, donc j'ai pu mémoriser assez d'informations à temps.
 
 ### Points à améliorer
 Nommer deux points à améliorer de votre préparation à l'examen ainsi qu'une piste de solution pour les prochains examens. 
