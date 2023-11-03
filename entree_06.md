@@ -7,6 +7,7 @@ Entre 300 et 400 mots.
 
 ### Description
 Décrivez l'oeuvre. Quelles étaient les composantes de l'installation? Comment était-elle réalisée techniquement? 
+Celle-ci avait un scénario captivant. C'était comme si on était réelement en mission dans un bar/casino. Les énigmes étaient variiées, mais pas au point où elles sortaient du contexte. Le décors immersif est une composante très importante. L'environnement physique de l'escape room doit être soigneusement conçu pour correspondre au thème du scénario.
 
 ### Opinion
 Donnez votre opinion sur l'oeuvre que nous avons visitée. Vous a-t-elle plu? Ou pas du tout? Pourquoi? Est-ce que certains aspects vous ont plus touchés que d'autres? 
